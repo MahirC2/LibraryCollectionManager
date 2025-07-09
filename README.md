@@ -1,1 +1,1 @@
-Click on the link to view: collectionmanager-90e5f.web.app/
+Click on the link in the description to view.
