@@ -1,1 +1,1 @@
-Click on the link in the 'About' section to view.
+View the app: collectionmanager-90e5f.web.app/
